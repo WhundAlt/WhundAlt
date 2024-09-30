@@ -2,6 +2,7 @@
 - i like brawl stars
 - i like brawl stars mods
 - i like cpps
+- i like dragalia lost
 - i like vps free
 - i like modding games
 - i like decompiling unity games
