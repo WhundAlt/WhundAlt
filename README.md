@@ -4,7 +4,7 @@
 - i like cpps
 - i like vps free
 - i like modding games
-- i love decompiling unity games
+- i like decompiling unity games
 - yes
 
 <!---
