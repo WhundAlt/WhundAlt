@@ -4,6 +4,9 @@
 - i like cpps
 - i like dragalia lost
 - i like vps free
+- i like suspects mystery mansion
+- i like rec room
+- i like zooba
 - i like modding games
 - i like decompiling unity games
 - yes
